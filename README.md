@@ -7,3 +7,4 @@ https://chatgpt.com/s/t_6a60fb1e9f1c819189685f24440406a6
 https://chatgpt.com/share/6a60fcd8-d0f4-83ee-adf0-faaae9c0f6eb
 https://chatgpt.com/share/6a60ff84-b16c-83ee-b758-41b585400317
 https://youtu.be/V9mVCcxHfvs?si=5uLzQ3IOOotW7K3Y
+https://youtu.be/vim3hmVWa_Q?si=sxitMY60PmSuoEmq
