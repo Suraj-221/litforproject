@@ -11,3 +11,5 @@ https://chatgpt.com/share/6a60ff84-b16c-83ee-b758-41b585400317
 https://youtu.be/V9mVCcxHfvs?si=5uLzQ3IOOotW7K3Y
 https://youtu.be/vim3hmVWa_Q?si=sxitMY60PmSuoEmq
 https://chatgpt.com/share/6a62d0c7-bf94-83e8-81ef-5e51d040788d
+https://chatgpt.com/share/6a62d0c7-bf94-83e8-81ef-5e51d040788d
+https://chatgpt.com/share/6a6ab570-9c30-83ee-bb76-9340517950b4
