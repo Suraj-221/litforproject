@@ -28,3 +28,4 @@ https://chatgpt.com/s/t_6a7a8ce25b5c8191ab250d31f2bfee3a
 
 https://chatgpt.com/share/6a62d0c7-bf94-83e8-81ef-5e51d040788d?ogimg=plain
 https://chatgpt.com/share/6a82734a-5220-83e8-aeb4-267d9dbfefae?ogimg=plain
+https://chatgpt.com/share/6a83ccfe-03d0-83e8-9be8-eccf027d30ab?ogimg=plain
