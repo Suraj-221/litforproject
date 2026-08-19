@@ -30,3 +30,5 @@ https://chatgpt.com/share/6a62d0c7-bf94-83e8-81ef-5e51d040788d?ogimg=plain
 https://chatgpt.com/share/6a82734a-5220-83e8-aeb4-267d9dbfefae?ogimg=plain
 https://chatgpt.com/share/6a83ccfe-03d0-83e8-9be8-eccf027d30ab?ogimg=plain
 https://chatgpt.com/s/t_6a83d07dae0481919706d241791f308f
+https://chatgpt.com/s/t_6a8517cca824819187af7958c6050c62
+https://chatgpt.com/s/t_6a851819cb788191a0bb4e2b2357be84
